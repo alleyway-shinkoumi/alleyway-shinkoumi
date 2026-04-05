@@ -7,6 +7,6 @@ $\color{#FFB5C0}{\textsf{"Let's go, My Treasure!"}}$
 <img width="800" height="800" alt="Image" src="https://files.catbox.moe/fa9pgu.png" />
   <img width="1500" height="500" alt="Image" src="https://files.catbox.moe/m93kbl.png" />
   
-  <div align="left"><img width="700" height="700" alt="Image" src="https://files.catbox.moe/gcrpoe.png" /> 
+<img width="850" height="1500" alt="Image" src="https://files.catbox.moe/gcrpoe.png" /> 
     everything is a wip and made by me
   

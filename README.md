@@ -2,6 +2,8 @@
 
 $\color{#FFB5C0}{\textsf{"Let's go, My Treasure!"}}$
 
+$\color{#FFB5C0}{\textsf{everythings a wip + gon make a gallery of all my c+h screenshots w ppl!(big c+h person rando or not)}}$
+
 ![](https://komarev.com/ghpvc/?username=Ovrpheus&label=GYARUO:&color=FFC0CB&style=plastic)
 
 <img width="800" height="800" alt="Image" src="https://files.catbox.moe/fa9pgu.png" />

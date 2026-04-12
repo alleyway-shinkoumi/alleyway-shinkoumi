@@ -1,9 +1,9 @@
 <div align="center">
 
-$\color{#FFB5C0}{\textsf{"Let's go, My Treasure!"}}$
+$\color{#006400}{\textsf{"As this is the day I have your smile all to myself!"}}$
 
 
-![](https://komarev.com/ghpvc/?username=Ovrpheus&label=GYARUO:&color=FFC0CB&style=plastic)
+![](https://komarev.com/ghpvc/?username=Ovrpheus&label=AtoZ:&color=50C878&style=plastic)
 
 <img width="800" height="800" alt="Image" src="https://files.catbox.moe/fa9pgu.png" />
   <img width="1500" height="500" alt="Image" src="https://files.catbox.moe/m93kbl.png" />

@@ -1,6 +1,7 @@
 <div align="center">
 
-$\color{#F0E2B6}{\textsf{Can catbox fix itself up so i can use it again i look like a noob using the discord method}}$
+$\color{#F0E2B6}{\textsf{hey everyone my name is kaoru hakaze i was born november 3rd and im im the student of yumenosaki gakuen high school im a senior student}}$
+$\color{#F0E2B6}{\textsf{right there and my blood type is B and my class my class is 3-A thats pretty much it thank you}}$
 
 ![](https://komarev.com/ghpvc/?username=Ovrpheus&label=Rei4Kao:&color=F0E2B6&style=plastic)
 <p align="center">

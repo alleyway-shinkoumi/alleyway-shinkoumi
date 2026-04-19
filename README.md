@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#006400}{\textsf{"As this is the day I have your smile all to myself!"}}$
+$\color{#F0E2B6}{\textsf{Can catbox fix itself up so i can use it again i look like a noob using the discord method}}$
 
 ![](https://komarev.com/ghpvc/?username=Ovrpheus&label=AtoZ:&color=F0E2B6&style=plastic)
 <p align="center">

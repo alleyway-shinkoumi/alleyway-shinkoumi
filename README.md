@@ -12,3 +12,4 @@ $\color{#F0E2B6}{\textsf{right there and my blood type is B and my class my clas
   <img width="800" height="700" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled134_20260420041349.png" />
   <img width="1000" height="800" alt="Image" src="https://cdn.discordapp.com/attachments/1169626689601540206/1495101018008981586/Untitled113_20260419003703.png?ex=69e504d4&is=69e3b354&hm=3601bb92a9bdfb9af1615d071db41405457643c68136ab7cf10ec204529d414f&" />
 https://youtu.be/kzlb_UKKQQE?si=5saQOyHqrdrX81Z3
+https://youtu.be/G1SeGWyz6Ig?si=2P6ajWWLvrCxMFtf

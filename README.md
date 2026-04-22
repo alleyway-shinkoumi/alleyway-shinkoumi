@@ -10,5 +10,3 @@ $\color{#F0E2B6}{\textsf{a senior student right there and my blood type is B and
   </a>
 </p>  
   <img width="800" height="700" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled134_20260420041349.png" />
-
-https://youtu.be/G1SeGWyz6Ig?si=2P6ajWWLvrCxMFtf

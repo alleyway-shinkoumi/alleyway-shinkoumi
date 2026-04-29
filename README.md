@@ -10,6 +10,5 @@
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
   <img width="1000" height="500" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled87_20260405163639.png" />
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
-
-  <a href="https://towaphobia.atabook.org"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled89_20260430033912.png" width="400"></a>
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7678.gif" width="400"></a>
   

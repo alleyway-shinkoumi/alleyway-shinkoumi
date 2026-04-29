@@ -18,5 +18,6 @@
 <a href="https://guns.lol/tokatowa"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>
 <a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
 </p>
+<img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7678.gif" width="400"></a>
   <img width="1100" height="150" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7705.png" />

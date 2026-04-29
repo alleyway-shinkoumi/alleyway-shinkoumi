@@ -1,12 +1,12 @@
 <div align="center">
-
-$\color{#F0E2B6}{\textsf{hey everyone my name is kaoru hakaze i was born november 3rd and im im the student of yumenosaki gakuen high school im}}$
-$\color{#F0E2B6}{\textsf{a senior student right there and my blood type is B and my class my class is 3-A thats pretty much it thank you}}$
-
-![](https://komarev.com/ghpvc/?username=Ovrpheus&label=Rei4Kao:&color=F0E2B6&style=plastic)
-<p align="center">  
-  <img width="600" height="300" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_4592.png" />
+<img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6514.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6513.gif" /><img width="150" height="30" alt="Image"src="https://file.garden/aeU00LX7giXAZivJ/IMG_6511.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6512.gif" />
+  
+![](https://komarev.com/ghpvc/?username=Ovrpheus&label=Rei4Kao:&color=FFB5C0&style=plastic)
+<p align="center"> 
 
 
 
-  <img width="800" height="700" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled134_20260420041349.png" />
+  <img width="1000" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled95_20260405170943.png" />
+  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
+  <img width="1000" height="500" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled87_20260405163639.png" />
+  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />

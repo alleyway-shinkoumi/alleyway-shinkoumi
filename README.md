@@ -15,7 +15,7 @@
 <a href="https://yoruruyoru.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043133.png" width="300"></a>
 <a href="https://cuddlescreenshots.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043225.png" width="300"></a>
 <a href="https://yoruruyoru.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>
-<a href="https://towaphobia.atabook.org"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
+<a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
 </p>
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7678.gif" width="400"></a>
   

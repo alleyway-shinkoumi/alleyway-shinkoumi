@@ -21,7 +21,8 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
 </p>
  <img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><p align="right">
 
-      `DC : ka0rusurfing
+      `DC & IG : ka0rusurfing
+      `Twitter : GYA4RUOX
       `Tiktok : kaoru.hakamikaze
       `Roblox: No1_Architect
 <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />

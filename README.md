@@ -1,9 +1,9 @@
 <div align="center">
  <img width="1100" height="150" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7704.png" />
 <img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7674.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6513.gif" /><img width="150" height="30" alt="Image"src="https://file.garden/aeU00LX7giXAZivJ/IMG_6511.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6512.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7675.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7673.gif" />
-  
-![](https://komarev.com/ghpvc/?username=Ovrpheus&label=KaoruPs:&color=FFB5C0&style=plastic)
+
 <p align="center"> 
+   <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=KaoruPs&extraCount=2310&color=FFB5C0&labelColor=ffffff">
 
 
 ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U! }}$

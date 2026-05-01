@@ -21,6 +21,6 @@
 <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled160_20260430052343.png" width="1000"></a>
 
-${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U AND CREDITS TO U! }}$
+${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U! }}$
 
   <img width="1100" height="150" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7705.png" />

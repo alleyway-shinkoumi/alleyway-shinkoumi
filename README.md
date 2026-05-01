@@ -19,6 +19,11 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
 <a href="https://guns.lol/tokatowa"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>
 <a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
 </p>
+ <p align="right">
+
+      `DC : ka0rusurfing
+      `Tiktok : kaoru.hakamikaze
+      `Roblox: No1_Architect
 <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled160_20260430052343.png" width="1000"></a>
 

@@ -19,8 +19,11 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
 <a href="https://cuddlescreenshots.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043225.png" width="300"></a>
 <a href="https://guns.lol/tokatowa"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>
 <a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
-</p>
- <img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><p align="right">
+</p><p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3162fbvqohxiqg4shs7uy3b5uvby&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3162fbvqohxiqg4shs7uy3b5uvby&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffb9c9&interchange=true&profanity=true&bar_color=ffa2a6&bar_color_cover=true">
+  </a>
+</p><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
 
       `DC & IG : ka0rusurfing
       `Twitter : GYA4RUOX

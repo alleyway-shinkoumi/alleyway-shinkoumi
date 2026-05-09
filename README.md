@@ -8,7 +8,7 @@
  
 ${\textsf{\color{#ffd1df} I  love my pretty girlfrie sunny <3  }}$
 
-${\textsf{\color{#ffd1df} also noven's teach  }}$
+${\textsf{\color{#ffd1df} also forever noven's teach blehh }}$
 
 ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U! }}$
   <img width="1000" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled95_20260405170943.png" />

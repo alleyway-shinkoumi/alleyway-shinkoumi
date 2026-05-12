@@ -4,6 +4,7 @@
 <p align="center"> 
 <img width="900" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8011.gif" />
 <img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7674.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6513.gif" /><img width="150" height="30" alt="Image"src="https://file.garden/aeU00LX7giXAZivJ/IMG_6511.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6512.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7675.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7673.gif" />
+ 
  <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=100810&color=FFE5EC&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Reikaorus&extraCount=11202&color=FFFFFf&labelColor=FFE5EC">
  
 ${\textsf{\color{#ffd1df} forever noven's teach blehh }}$

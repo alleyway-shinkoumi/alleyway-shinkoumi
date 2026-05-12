@@ -7,7 +7,7 @@
 <p align="center"> 
    <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=100810&color=FFE5EC&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Reikaorus&extraCount=11202&color=FFFFFf&labelColor=FFE5EC">
  
-${\textsf{\color{#ffd1df} ෆ ⌗ • I  love my pretty girlfrie sunny <3 ʚɞ }}$
+<img width="950" height="350" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8010.gif" />
 
 ${\textsf{\color{#ffd1df} also forever noven's teach blehh }}$
 

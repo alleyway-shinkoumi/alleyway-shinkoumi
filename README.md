@@ -1,7 +1,7 @@
  <!-- atleast ask for permission u CHUDDDDDDDDDD-->
  <div align="center">
  <img width="1100" height="150" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7704.png" />
-  <img width="50" height="50" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8025.webp" /><img width="120" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8014.gif" /><img width="50" height="50" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8026.webp" />
+ <img width="120" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8014.gif" />
  
 <p align="center"> 
 <img width="900" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8011.gif" />
@@ -12,7 +12,7 @@
  
  <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=100810&color=FFE5EC&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Reikaorus&extraCount=11202&color=FFFFFf&labelColor=FFE5EC">
  
-${\textsf{\color{#ffd1df} forever noven's teach blehh }}$
+<img width="60" height="60" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8025.webp" />${\textsf{\color{#ffd1df} forever noven's teach blehh }}$<img width="60" height="60" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8026.webp" />
 
 ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U! }}$
   <img width="1000" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled95_20260405170943.png" />

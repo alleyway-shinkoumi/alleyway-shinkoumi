@@ -25,10 +25,19 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
 </p><p align="center">
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
  <img width="1000" height="400" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7851.jpeg" />
- <p float="left">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7885.jpeg" width="49%" />
-  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7887.jpeg" width="49%" />
-</p>
+  <table>
+  <tr>
+    <th>
+      $\color{FFE5EC}\normalsize{\texttt{i was verrryyryyyyyy much often offtab DONT BLAME ME FOR THAT}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{but i always never mind being interacted with!!! tbh i prefer}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{that than NOT being interacted with! i do get dni/dniuf/etc on }}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{but theyre mostly because im not in the mood to talk because im lazy}}$ <br> 
+      $\color{FFE5EC}\normalsize{\texttt{C+H 4EVA OPENN!! HUG ME WHENEVER TOO THO!! even with friends or not}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{as long as youre not on my dni i def dont mind being friends aha dms}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{are very much open ladies wink wink one at a TIMEok enough of this }}$ <br>
+    </th>
+  </tr>
+  </table>
 
 <img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
 

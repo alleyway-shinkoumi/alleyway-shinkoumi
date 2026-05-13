@@ -32,7 +32,6 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 
  <table>
-  <tr>
     <th>
       <div align="left">
   <table>
@@ -49,7 +48,7 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
   </tr>
   </table>
       </div><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8069.gif" />
-<img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8073.gif" /><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
+<img width="100" height="100" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8015.gif" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8073.gif" /><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
      
    <img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8071.gif" /><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
 

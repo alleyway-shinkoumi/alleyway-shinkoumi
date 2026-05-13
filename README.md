@@ -9,7 +9,7 @@
  
  <img width="60" height="50" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8016.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7675.gif" /><img width="150" height="30" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8019.gif" /><img width="60" height="50" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8017.gif" />
  
- <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=100810&color=FFE5EC&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Reikaorus&extraCount=11202&color=FFFFFf&labelColor=FFE5EC">
+ <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=100810&color=FFE5EC&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Kaoruanzus&extraCount=11202&color=FFFFFf&labelColor=FFE5EC">
  
 <img width="60" height="60" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8025.webp" />${\textsf{\color{#ffd1df} ₊˚ʚ ꜰᴏʀᴇᴠᴇʀ ɴᴏᴠᴇɴ’ꜱ ᴛᴇᴀᴄʜ! ✧ ༉. }}$<img width="60" height="60" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8026.webp" />
 

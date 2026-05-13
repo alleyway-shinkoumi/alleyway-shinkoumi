@@ -39,11 +39,11 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
   <tr>
     <th>
      <p align="center">
-      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀⠀⠀✿.⠀⠀⠀⠀ɑ︭𝗆︭𝗈︭𝗋︭ㅤ𝐝𝐞⠀⠀𝓙𝑒𝑛𝑛𝑖𝑒}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀⠀𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟𝑠 ⠀⠀on⠀⠀ 𝗲𝗮𝗿𝘁𝗵⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀doll⠀⠀✋🏻♡ㅤ˒}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$ <br>⠀ <img width="20" height="20" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8024.webp" />⠀ $\color{FFE5EC}\normalsize{\texttt{𝑅eo}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀ѕυяƒιηg⠀. 𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟ ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀doll⠀🌸⠀♡ㅤ˒}}$ <br>
       $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀s𝗲n͡orita ⠀⠀𝗴al͟o͟r͟e͟ ㅤ✿⃝🫧}}$ <br> 
-      $\color{FFE5EC}\normalsize{\texttt{(ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀search⠀'⠀dollcure⠀'⠀4⠀more｡}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{   (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$ <br>
     </th>
   </tr>
   </table>

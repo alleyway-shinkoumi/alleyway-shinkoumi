@@ -30,23 +30,22 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
  <img width="1000" height="400" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7851.jpeg" />
  <img width="1000" height="1000" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled161_20260514011727.png" />
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
-
- <table>
+ <p align="center">
     <th>
-      <div align="left">
   <table>
   <tr>
     <th>
-      $\color{FFE5EC}\normalsize{\texttt{i was verrryyryyyyyy much often offtab DONT BLAME ME FOR THAT}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{but i always never mind being interacted with!!! tbh i prefer}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{that than NOT being interacted with! i do get dni/dniuf/etc on }}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{but theyre mostly because im not in the mood to talk because im lazy}}$ <br> 
-      $\color{FFE5EC}\normalsize{\texttt{C+H 4EVA OPENN!! HUG ME WHENEVER TOO THO!! even with friends or not}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{as long as youre not on my dni i def dont mind being friends aha dms}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{are very much open ladies wink wink one at a TIMEok enough of this }}$ <br>
+     <p align="center">
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀⠀⠀✿.⠀⠀⠀⠀ɑ︭𝗆︭𝗈︭𝗋︭ㅤ𝐝𝐞⠀⠀𝓙𝑒𝑛𝑛𝑖𝑒}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀⠀𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟𝑠 ⠀⠀on⠀⠀ 𝗲𝗮𝗿𝘁𝗵⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀doll⠀⠀✋🏻♡ㅤ˒}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀s𝗲n͡orita ⠀⠀𝗴al͟o͟r͟e͟ ㅤ✿⃝🫧}}$ <br> 
+      $\color{FFE5EC}\normalsize{\texttt{(ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀search⠀'⠀dollcure⠀'⠀4⠀more｡}}$ <br>
     </th>
   </tr>
   </table>
+     <table>
+      <th>
       </div><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8069.gif" />
 <img width="100" height="100" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8015.gif" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8073.gif" /><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
      
@@ -55,6 +54,8 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
       `DC & IG : ka0rusurfing
       `Tiktok : kaoru.hakamikaze
       `Roblox: No1_Architect
+  </th>
+  </table>
 <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled160_20260430052343.png" width="1000"></a>
 

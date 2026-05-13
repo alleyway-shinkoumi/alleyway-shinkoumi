@@ -41,9 +41,9 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
      <p align="center">
       $\color{FFE5EC}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$ <br>⠀ <img width="20" height="20" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8024.webp" />⠀ $\color{FFE5EC}\normalsize{\texttt{𝑅eo}}$ <br>
       $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀ѕυяƒιηg⠀. 𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟ ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀doll⠀🌸⠀♡ㅤ˒}}$ <br>
-      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀s𝗲n͡orita ⠀⠀𝗴al͟o͟r͟e͟ ㅤ✿⃝🫧}}$ <br> 
-      $\color{FFE5EC}\normalsize{\texttt{   (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥⠀♡ㅤ˒}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀03/13/25 ⠀ˢᵘⁿⁿʸ⠀ ㅤ✿⃝🫧}}$ <br> 
+      $\color{FFE5EC}\normalsize{\texttt{   (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$ <br> <img width="20" height="20" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7725.webp" />
     </th>
   </tr>
   </table>
@@ -54,9 +54,9 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
      
    <img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8071.gif" /><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" />
 
-      `DC & IG : ka0rusurfing
-      `Tiktok : kaoru.hakamikaze
-      `Roblox: No1_Architect
+    ⠀ ࣪⠀⠀𓏵⠀⠀ ׅ 𝕯isC & ιnsta : ka0rusurfing
+                         `𐌕ikto𝓀 : kaoru.hakamikaze .  .    ★   
+          ݁ ˖Ი𐑼⋆ `̠R̠oblo𓏴 : No1_Architect  ゛ ⸝⸝.ᐟ⋆
   </th>
   </table>
 <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />

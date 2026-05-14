@@ -23,7 +23,7 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 
 <a href="https://fanmail.atabook.org"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043142.png" width="300"></a>
-<img width="150" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7731.gif" />
+<img width="120" height="50" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7731.gif" />
 <a href="https://yoruruyoru.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043133.png" width="300"></a>
 <a href="https://byibest-to-read-this.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260505153452.png" width="300"></a>
 <a href="https://guns.lol/tokatowa"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>

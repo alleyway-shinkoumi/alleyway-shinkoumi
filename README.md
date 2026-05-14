@@ -23,14 +23,14 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 
 <a href="https://fanmail.atabook.org"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043142.png" width="300"></a>
-<img width="120" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7731.gif" />
+<img width="150" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7731.gif" />
 <a href="https://yoruruyoru.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043133.png" width="300"></a>
 <a href="https://byibest-to-read-this.straw.page/"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260505153452.png" width="300"></a>
 <a href="https://guns.lol/tokatowa"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043214.png" width="300"></a>
 <a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
 </p><p align="center">
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
- <img width="1000" height="700" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled163_20260514230300.png" />
+ <img width="1000" height="600" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled163_20260514230300.png" />
  <img width="1000" height="1100" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled161_20260514011727.png" />
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
  <p align="center">
@@ -39,7 +39,7 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
   <tr>
     <th>
      <p align="center">
-      $\color{FFE5EC}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$ <br>⠀ <img width="20" height="20" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8024.webp" />⠀ $\color{FFE5EC}\normalsize{\texttt{𝑅eo}}$ <br>
+      $\color{FFE5EC}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$ <br>⠀ <img width="20" height="20" alt="Image"src="https://file.garden/aeU00LX7giXAZivJ/IMG_8024.webp" />⠀ $\color{FFE5EC}\normalsize{\texttt{𝑅eo}}$ <br>
       $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀ѕυяƒιηg⠀. 𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟ ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$ <br>
       $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥⠀♡ㅤ˒}}$ <br>
       $\color{FFE5EC}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀03/13/25 ⠀ˢᵘⁿⁿʸ⠀ ㅤ✿⃝🫧}}$ <br> 

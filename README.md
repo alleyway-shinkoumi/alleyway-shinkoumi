@@ -19,7 +19,7 @@
 ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-players TO WHOEVER DID THAT THANK U! }}$
   <img width="1000" height="200" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled95_20260405170943.png" />
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
-  <img width="1000" height="500" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled163_20260515172033.png" />
+  <img width="1000" height="500" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled87_20260405163639.png" />
   <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
 
 <a href="https://fanmail.atabook.org"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043142.png" width="300"></a>
@@ -30,7 +30,7 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
 <a href="https://en.pronouns.page/@towadism_"><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled159_20260430043154.png" width="300"></a>
 </p><p align="center">
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
- <img width="1000" height="600" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled163_20260514230300.png" />
+ <img width="1000" height="600" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled163_20260515172033.png" />
  <img width="1000" height="1100" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/Untitled161_20260514011727.png" />
  <img width="1000" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_6483.png" />
  <p align="center">

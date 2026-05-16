@@ -54,6 +54,7 @@ ${\textsf{\color{#ffd1df} im VERY honored to be added in the TOP C+H'ers in @pt-
     </th>
   </tr>
   </table>
+      <img width="1100" height="80" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8184.gif" />
      <table>
       <th>
       </div><img width="70" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_7727.webp" /><img width="200" height="70" alt="Image" src="https://file.garden/aeU00LX7giXAZivJ/IMG_8069.gif" />
